@@ -14,7 +14,7 @@ Curious by nature, creative by choice, and always ready to break (and fix) thing
 - 🧵 X (Twitter): [@Oumniverse](https://x.com/Oumniverse)  
 - 💼 LinkedIn: [Oumniya Chahidi](https://www.linkedin.com/in/oumniya-chahidi-155628363?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B%2F%2F%2BsDGkFTNy0ObGn21SNeQ%3D%3D).
 
-> "Ideas are easy. Execution is everything." — John Doerr
+> "Stay hungry, stay foolish." — Steve Jobs
 
 
 <!---
